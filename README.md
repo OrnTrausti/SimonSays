@@ -3,7 +3,9 @@
 <br>
 (2) https://github.com/VESM1VS/Efni/blob/main/Kodi/simon.ino
 <br>
-(3) https://www.youtube.com/watch?v=pyIu2wZ78HA&ab_channel=catsrook
+(3) 
+<br>
+[![video](https://user-images.githubusercontent.com/97181489/216170670-2394082a-1819-4300-8069-f6b1c716b4c7.JPG)]([http://www.youtube.com/watch?v=OpI7J9vtbnw](https://www.youtube.com/embed/pyIu2wZ78HA))
 <br>
 <br>
 (4)
