@@ -5,16 +5,22 @@
 <br>
 (3) VIDEO
 <br>
-[![VIDEO](https://user-images.githubusercontent.com/97181489/216171184-661bb8df-6392-47b2-aebf-5bfa24e04ffa.JPG)](https://www.youtube.com/watch?v=pyIu2wZ78HA&ab_channel=catsrook)
+[![VIDEO](https://user-images.githubusercontent.com/97181489/216389252-7a072bd9-1dd7-4c1d-a9bd-04d4389db77a.jpg)](https://youtu.be/67LVTGPDMkM)
 <br>
 <br>
 (4)
 <br>
-![20230201_135914](https://user-images.githubusercontent.com/97181489/216167096-6af6cce3-d624-4cf3-9dec-12d3b48e9609.jpg)
-![20230201_135911](https://user-images.githubusercontent.com/97181489/216167214-0c68e6ef-ab47-4657-86ec-667ba85cb4b3.jpg)
+![Screenshot_20230202_045959](https://user-images.githubusercontent.com/97181489/216392216-8e24978c-182d-4a16-b497-b5a781a9c588.png)
+
+![Screenshot_20230202_050130](https://user-images.githubusercontent.com/97181489/216392274-544b47ad-4f41-4c0d-af57-cd1f7df91d83.png)
 <br>
-(5) didn't make a drawing?
+(5) 
 <br>
+![leserOrn](https://user-images.githubusercontent.com/97181489/216390007-623f9d4d-2b06-43c8-8089-7bec2d709cd9.svg)
+<br>
+
 why I failed
 <br>
-I failed because I let the stress overtake me I am sensitive to loud noise and it can get me stressed when I was striping wires I crushed it too far and the wires kept breaking when I moved the box I also believe I not just restarted was one of my downfalls I kept trying to fix the wires and striping it more and more which just let it be too short so they kept braking more but before I put it in the box I did finish if you see my 2 images they both were taking when the box fully worked but at the end, I failed
+I DID IT! :)
+
+
