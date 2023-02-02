@@ -3,7 +3,7 @@
 <br>
 (2) https://github.com/VESM1VS/Efni/blob/main/Kodi/simon.ino
 <br>
-(3) VIDEO
+(3) VIDEO (click the img)
 <br>
 [![VIDEO](https://user-images.githubusercontent.com/97181489/216389252-7a072bd9-1dd7-4c1d-a9bd-04d4389db77a.jpg)](https://youtu.be/67LVTGPDMkM)
 <br>
